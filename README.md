@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **martinsanchezr@outlook.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1lQKLcRRSaA_W1CD8Bmxpdhr-qEhQGtc9/view?usp=drive_link](https://drive.google.com/file/d/1lQKLcRRSaA_W1CD8Bmxpdhr-qEhQGtc9/view?usp=drive_link)
+- 📄 Know about my experiences [Drive](https://drive.google.com/file/d/1lQKLcRRSaA_W1CD8Bmxpdhr-qEhQGtc9/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
